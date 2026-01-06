@@ -1,3 +1,2 @@
-# miku miku [ooo.eeeee.ooo](https://ooo.eeeee.ooo)
+hmm
 
-i'm thinking miku miku [ooo.eeeee.ooo](https://ooo.eeeee.ooo)
